@@ -2,6 +2,7 @@
 
 
 *May 5, 2024 | 08:30AM | Monday*
+![](OIG4.uYH.jpeg)
 
 
 We face so many challenges in our life that sometimes make us or break us. It really depends on how we react to the situation. How we deal with it. How we accept it and how we train our brain on what to think from what not to think. 
