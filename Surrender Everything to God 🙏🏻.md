@@ -1,3 +1,0 @@
-# Surrender Everything to God 🙏🏻
-
-
