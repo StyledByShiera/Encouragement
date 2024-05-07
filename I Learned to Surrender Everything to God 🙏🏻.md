@@ -17,3 +17,7 @@ In today's world, there are times when I feel overwhelmed and lost. And even if 
 But honestly, these unfortunate moments were the ones that lead me to releasing everything and surrendering all to the Lord. I learned how to cope with it, that no matter what I do, I'm not the one in control. It's His will and only His plans will be fulfilled. The minute we start letting Him control our life and our choices, we start seeing amazing results. We start meeting the right people and doors of opportunities are now opening for us. Again, it's how we deal with the problem. 
 
 Just remember, as a human it's normal for us to encounter setbacks. Small or big they are there to mold us to become better. We have to learn from past mistakes. May it be our mistakes or from others, one thing is clear, God is with us from start to finish. He's always there waiting patiently for us. So whenever you feel troubled, tired, and lost just reach out to Him, talk to Him, surrender everything and let Him lead the way. By His grace, everything will be okay. You’re gonna be okay.
+
+
+
+*Shiera Laran*
