@@ -2,9 +2,10 @@
 
 
 *May 5, 2024 | 08:30AM | Monday*
-![](../z-Attachments/pic1%201.jpeg)
 
 We face so many challenges in our life that sometimes make us or break us. It really depends on how we react to the situation. How we deal with it. How we accept it and how we train our brain on what to think from what not to think. 
+
+<img align="right" height="300" width=“300” src="https://github.com/StyledByShiera/Front-End-Public/blob/main/Encouragement/Images/pic1.jpeg?raw=true" />
 
 It's so easy to give advice to other people on what they should do from what they shouldn't. But when it comes to ourselves, it's so freaking difficult. It's true, it's easier said than done. 
 
